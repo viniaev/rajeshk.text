@@ -1,2 +1,0 @@
-# rajeshk.text
-
